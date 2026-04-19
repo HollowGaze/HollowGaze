@@ -6,7 +6,7 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=HollowGaze&color=0F1815&label=ㅤㅤㅤfallenㅤcreatureㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=HollowGaze&color=0F1815&label=ㅤㅤㅤfallenㅤcreaturesㅤㅤㅤ&style=plastic)
   ${\textsf{\color{#393D33}those stubborn fools do not deserve their souljam}}$
   ${\textsf{\color{#393D33}souljam}}$
 <div align="center">
