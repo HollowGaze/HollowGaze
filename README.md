@@ -10,7 +10,7 @@
 
   
   
-  Ill became THE COOLEST! >:) 
+  Ill become THE COOLEST! >:) 
   ⠀sign ata please and thank you! 
 <div align="center">
 <br />
