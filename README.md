@@ -6,7 +6,7 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=HollowGaze&color=0F1815&label=ㅤㅤㅤCOOLCHUDZㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=HollowGaze&color=C03E5F&label=ㅤㅤㅤCOOLCHUDZㅤㅤㅤ&style=plastic)
 
   
   
