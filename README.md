@@ -1,16 +1,16 @@
 
 
-![image alt](https://files.catbox.moe/w7b6ta.png) 
+![image alt](https://files.catbox.moe/rnto7g.png) 
 <div align="center">
 <br />
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=HollowGaze&color=0F1815&label=ㅤㅤㅤfallenㅤcreaturesㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=HollowGaze&color=0F1815&label=ㅤㅤㅤCOOLCHUDZㅤㅤㅤ&style=plastic)
 
   
   
-  something wicked will happen
+  Ill became THE COOLEST! >:) 
   ⠀sign ata please and thank you! 
 <div align="center">
 <br />
