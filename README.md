@@ -21,9 +21,10 @@
 
 
   <h1>VODKA X SCARLET WORLD DOMINATION!!!!! </h1>
-<img width="391" height="449" alt="Image" src="https://github.com/user-attachments/assets/acc2f40a-3d8a-454d-845e-67b112b506c7" />
-<img width="736" height="595" alt="Image" src="https://github.com/user-attachments/assets/160ad0d8-aebc-42c0-b3c9-5bd9cc61f69a" />
-<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/588818bc-c2e1-4342-941c-c1d7bceb9e05" />
-<img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/3f48f590-d418-448a-854c-ef5ce2283515" />
-<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/47e181cf-1fac-4609-8999-5e0deb26bffb" />
-<img width="252" height="252" alt="Image" src="https://github.com/user-attachments/assets/7209d006-c155-4a22-9879-21bdc7412415" />
+<img width="736" height="528" alt="Image" src="https://github.com/user-attachments/assets/dae3b7be-5a22-443a-b6e4-93b2910abcb2" />
+<img width="391" height="449" alt="Image" src="https://github.com/user-attachments/assets/5e126fa4-5f55-43bb-a6ff-2b846111f05f" />
+<img width="736" height="595" alt="Image" src="https://github.com/user-attachments/assets/504d7b53-3a4f-473f-bac9-48e51dff709f" />
+<img width="252" height="252" alt="Image" src="https://github.com/user-attachments/assets/ce0366b0-6175-4413-8f6d-598ccd99216f" />
+<img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/f335e34f-196e-4bc6-a28c-bb3de164e5fa" />
+<img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/4b951964-aff0-4c3a-b217-777ada35637f" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/8a3b7c98-7bac-4b7e-a886-dad6945e423e" />
