@@ -20,7 +20,7 @@
   [新book](https://plumpyplum.atabook.org) <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/f24c11eb-d3ab-4c9c-8c94-96176e0531ca" />
 
 
-  <h1>VODKA X SCARLET WORLD DOMINATION!!!!! </h1>
+  <h1>VODKA N SCARLET WORLD DOMINATION!!!!! </h1>
 <img width="736" height="528" alt="Image" src="https://github.com/user-attachments/assets/dae3b7be-5a22-443a-b6e4-93b2910abcb2" />
 <img width="391" height="449" alt="Image" src="https://github.com/user-attachments/assets/5e126fa4-5f55-43bb-a6ff-2b846111f05f" />
 <img width="736" height="595" alt="Image" src="https://github.com/user-attachments/assets/504d7b53-3a4f-473f-bac9-48e51dff709f" />
